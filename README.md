@@ -1,3 +1,3 @@
 # vsem-priv
 kulity tut bil ya phunt
-<img scr = "https://sun1-17.userapi.com/impf/c837220/v837220673/53fea/pbPQSjLxLZU.jpg">
+<img src="https://sun1-84.userapi.com/impf/U3TgM3GXQawHK7NZ8oytx1skEUpAaKtN3SPZHw/-JcwnRSOrX8.jpg?size=960x539&quality=96&sign=e55a361fe327f24272b362d03797d844&type=album">
