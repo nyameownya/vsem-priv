@@ -1,2 +1,3 @@
 # vsem-priv
-kulity
+kulity tut bil ya phunt
+
